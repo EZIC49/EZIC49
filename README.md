@@ -1,5 +1,6 @@
-### Hi there 👋
-Im true natural, plz believe me
+# EZIC was here
+Just a man
+
 
 
 <!--**EZIC49/EZIC49** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
