@@ -1,4 +1,4 @@
-## Hi there 👋\
+## Hi there 👋
 Im true natural, plz believe me
 
 
